@@ -11,4 +11,4 @@ Se agradece cualquier follow en YT o GH :)
 [YouTube](https://www.youtube.com/@naxosc)
 ## Thanks
 If you can follow i would apreciate that very much!
-![thumbs up])(https://media.tenor.com/TZVP_na4frcAAAAi/emoji-emoji-images.gif)
+![thumbs up](https://media.tenor.com/TZVP_na4frcAAAAi/emoji-emoji-images.gif)
